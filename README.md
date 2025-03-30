@@ -103,13 +103,13 @@ Agile & DevOps Practices
 
 📫 Let's Connect!
 📩 Email: 
-[Your Email](priscabirindwa5@gmail.com)
+[My Email](priscabirindwa5@gmail.com)
 
 💼 LinkedIn: 
-[Your LinkedIn](https://www.linkedin.com/in/prisca-nova-birindwa-a7749b203/)
+[My LinkedIn](https://www.linkedin.com/in/prisca-nova-birindwa-a7749b203/)
 
 📂 GitHub: 
-[Your GitHub](https://github.com/Prisca-Nova)
+[My GitHub](https://github.com/Prisca-Nova)
 
 
 💡 Always open to exciting opportunities and collaborations!
