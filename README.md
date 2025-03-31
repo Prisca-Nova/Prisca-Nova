@@ -1,6 +1,6 @@
 👋 Hi, I'm Prisca-Nova
 
-🚀 Software Developer | IT Support Specialist | Network & System Administrator
+🚀 Software Developer | IT Support Specialist | Trainer
 
 I am passionate about building scalable applications, managing IT infrastructures, and solving real-world problems with technology. My experience spans full-stack development, database management and IT support.
 
